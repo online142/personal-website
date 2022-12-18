@@ -1,4 +1,4 @@
-I DO NOT WON/MADE THIS CODE 
+I DO NOT OWN/MADE THIS CODE 
 
 
 who made it said its free to use so
